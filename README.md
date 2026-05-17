@@ -1,0 +1,2 @@
+# Mobiele_site-Stichting_Exodus_Nederland-Jij_bent_niet_alleen
+Mobiele versie
